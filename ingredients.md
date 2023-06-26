@@ -1,3 +1,4 @@
+Let's begin!
 2 tablespoons extra virgin olive oil
 1 large head cauliflower, cut into florets (about 6 cups chopped)
 1 yellow onion, chopped
@@ -18,3 +19,4 @@ smashed avocado, cilantro, and/or pumpkin seeds
 1 clove garlic, grated
 2 teaspoons honey
 1/4 cup lime juice
+Enjoy my recipe!
