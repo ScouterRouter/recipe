@@ -2,7 +2,7 @@
 1 large head cauliflower, cut into florets (about 6 cups chopped)
 1 yellow onion, chopped
 1 poblano pepper, sliced
-2-3 chipotle peppers in adobo, chopped
+3-4 chipotle peppers in adobo, chopped
 1/2 teaspoon dried oregano
 1 teaspoon kosher salt
 1/2 cup red enchilada sauce
